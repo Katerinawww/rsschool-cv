@@ -5,11 +5,11 @@ __Katsiaryna Varanovich__
 
 ## Contact Info:
 
-__* Phone:__ +375(44)540-00-00
+* __Phone:__ +375(44)540-00-00
 
-__* E-mail:__ Katerinawww01@gmail.com
+* __E-mail:__ Katerinawww01@gmail.com
 
-__# GitHub:__ Katerinawww
+* __GitHub:__ Katerinawww
 
 ## About myself:
 
